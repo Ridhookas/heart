@@ -1,4 +1,4 @@
 # heart
-My custom love letter with my crush 
+My custom love letter for my crush 
 
 just fun stuft
